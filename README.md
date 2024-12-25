@@ -5,4 +5,5 @@
 ————————————————————
  Join now and enjoy exclusive resources!
 
-🔗 [ https://t.me/TheMasterC ]
+🔗 [ https://t.me/TheMasterC ] 
+🔗 [ https://t.me/DarkChiper ]
